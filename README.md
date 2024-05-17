@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kalyan5324
+- 👋 Hi, I’m @KalyanKumar
 - 👀 I’m interested in to develop coding, content, Research.
 - 🌱 I’m currently learning how to develop my skills.
 - 💞️ I’m looking to collaborate on Finding Solutions, Communication. 
